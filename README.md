@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @KyleAdams26
-- 👀 I’m interested in applied mathematics, especially mathematical modeling applied to medicine.
-- 📫 How to reach me: adams.k@ufl.edu
+- 👀 I’m interested in applied mathematics, especially using mathematical and statistical modeling to improve the quality of lives of everyday people.
+- 📫 How to reach me: adams.k@ufl.edu or kyleadams2600@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I love the Florida Gators!
 
